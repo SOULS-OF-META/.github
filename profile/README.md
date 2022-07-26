@@ -6,5 +6,5 @@
 
 ## 🍿 Fun2Earn - https://SoulsOfMeta.io
 
-##🧙 Enjoy! 🌈 
+## 🧙 Enjoy! 🌈 
 
