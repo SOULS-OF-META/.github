@@ -6,5 +6,6 @@
 
 ## 🍿 Fun2Earn - https://SoulsOfMeta.io
 
-## 🧙 Enjoy! 🌈 
+## 🍿 Download F2E / W2E / F2P Games - https://SoulsOfMeta.io
 
+## 🧙 Enjoy! 🌈 
